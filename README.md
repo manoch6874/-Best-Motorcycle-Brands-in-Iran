@@ -1,14 +1,4 @@
-, including reliability, spare parts availability, after-sales service, resale value, fuel efficiency, and long-term maintenance costs.
 
-This guide introduces some of the most reputable motorcycle brands currently available in Iran.
-
----
-
-# 1. Honda
-
-Honda has long been regarded as the benchmark for reliability in the Iranian market.
-
-Its motorcycles are known for their exceptional durability, simple mechanics, low maintenance costs, and excellent fuel economy. Models such as the CG125 have become iconic due to their ability to withstand years of daily use under demanding conditions.
 
 ### Advantages
 
