@@ -3,14 +3,7 @@
 ### Advantages
 
 - Outstanding reliability
-- Excellent fuel efficiency
-- Low maintenance costs
-- Abundant spare parts
-- Strong resale value
-- Nationwide repair network
-
-### Popular Models
-
+SDFSF
 - Honda CG125
 - Honda CB150
 - Honda PCX 160
