@@ -1,26 +1,4 @@
 
-
-### Advantages
-
-- Outstanding reliability
-SDFSF
-- Honda CG125
-- Honda CB150
-- Honda PCX 160
-
----
-
-# 2. Yamaha
-
-Yamaha is widely respected for producing motorcycles with refined engineering, smooth performance, and premium build quality.
-
-Although Yamaha motorcycles generally cost more than many competitors, riders appreciate their comfort, handling, and long-term reliability.
-
-### Advantages
-
-- Premium build quality
-- Smooth riding experience
-- Excellent engineering
 - Reliable engines
 - Strong brand reputation
 
