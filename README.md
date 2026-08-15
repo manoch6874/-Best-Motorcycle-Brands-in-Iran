@@ -1,15 +1,4 @@
 
-- Reliable engines
-- Strong brand reputation
-
-### Popular Models
-
-- Yamaha Aerox 155
-- Yamaha NMAX 155
-- Yamaha MT-15
-- Yamaha YBR125
-
----
 
 # 3. Bajaj
 
