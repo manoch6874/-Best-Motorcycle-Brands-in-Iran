@@ -1,18 +1,4 @@
-
-
-# 3. Bajaj
-
-Bajaj has earned a significant share of the Iranian market thanks to its combination of affordability, performance, and reliability.
-
-Its Pulsar series has become particularly popular among younger riders looking for sporty styling without excessive ownership costs.
-
-### Advantages
-
-- Powerful engines
-- Competitive pricing
-- Good fuel economy
-- Widely available spare parts
-- Strong after-sales support
+dfgd
 
 ### Popular Models
 1
