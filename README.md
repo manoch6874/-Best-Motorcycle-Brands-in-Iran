@@ -1,4 +1,3 @@
-dfgd
 
 ### Popular Models
 1
