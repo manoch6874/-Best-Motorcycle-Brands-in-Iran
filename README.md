@@ -1,8 +1,5 @@
 
 ### Popular Models
-1
-2
-3
 - Pulsar NS200
 - Pulsar 180
 - Pulsar 150
