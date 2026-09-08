@@ -33,20 +33,6 @@ Benelli is considered a premium motorcycle brand in Iran.
 
 Its motorcycles combine Italian-inspired styling with modern engineering, making them attractive to riders seeking both performance and visual appeal.
 
-### Advantages
-
-- Sporty appearance
-- Strong engine performance
-- High-quality components
-- Comfortable riding position
-
-### Popular Models
-
-- TNT 15
-- TNT 25
-- Leoncino
-
----
 
 # 6. KTM
 
