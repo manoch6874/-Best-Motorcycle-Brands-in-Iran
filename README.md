@@ -106,5 +106,4 @@ For maximum reliability and long-term ownership, **Honda** remains the top recom
 
 Meanwhile, domestic manufacturers such as **Kavir Motor**, **Niroo Motor**, **Iran Doocharkh**, and **Kasir Group** continue to expand the Iranian motorcycle market by offering a wide range of locally assembled models supported by extensive dealer and service networks.
 
-8
 
